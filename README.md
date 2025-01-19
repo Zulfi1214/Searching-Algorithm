@@ -55,4 +55,4 @@ Zulfiqar Ali
 For more details, check out the GitHub repository and LinkedIn post.
 
 ## Linkdin Post
-[Click Here](#)
+[Click Here](https://www.linkedin.com/posts/zulfi-ai-2b3805307_github-zulfi1214searching-algorithm-activity-7286654315690172416--mjW?utm_source=share&utm_medium=member_desktop)
